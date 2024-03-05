@@ -1,1 +1,1 @@
-![screenshot-1709637877620](https://github.com/medait-3/pull-to-refresh-animation/assets/53193738/ccffd58a-c953-472c-ba2f-867a13d5cbb3)
+![01c8d6f7-2955-4226-82bf-264ed45ff4c9](https://github.com/medait-3/pull-to-refresh-animation/assets/53193738/5cfb046a-951a-4c03-9eec-3e316263ca07)
